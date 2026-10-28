@@ -1,1 +1,1 @@
-# cultural_bridge_exam_journal
+# To strive, to seek, to find, and not to yield
